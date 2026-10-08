@@ -1,0 +1,2 @@
+# premium-gather-blow-001-glass-gather-and-initial-blow
+Tired of inconsistent gathers and unpredictable initial blows ruining your workflow? Stop guessing and start tracking—your first blow shapes your entire piece.  This Notion template solves the pain of wasted glass and failed pieces by giving you a structured log for every gather and initial blow. It’s the best solution because it combines custom fi
